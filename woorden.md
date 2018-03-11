@@ -25,3 +25,15 @@ het voor mij tijd is.
 
 Wat ik er van weet, weet ik van verhalen. Verhalen die ongetwijfeld beter
 vertelt kunnen worden door andere. Liever praat ik over mijn ervaringen.
+
+## Partner
+Voor zolang als ik mij kan herinneren is mamma de vriendin van Renee. Hun
+relatie was zo natuurljk voor mij, ik heb er nooit vragen bijgesteld. Femke,
+mijn zus, heeft zelfs mijn woordenschat erover eens weten uit te breiden.
+
+Ik had een nieuw scheldwoord geleerd op school. Ik wist niet wat het betekende,
+maar wilde het graag uitproberen. Tijdens het uitlaten van de hond hadden Femke
+en ik weer eens ruzie. 
+
+"*Lesbie!*" riep ik uit. Het antwoord van Femke? "Ik ben geen lesbie, mama is
+een lesbie". Ik begreep niet meer waarom het een scheldwoord zou zijn. 
