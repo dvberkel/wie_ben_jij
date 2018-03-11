@@ -3,25 +3,25 @@ Een kleuter met zijn kinderfiets op de stoep van de wilgenlaan in Duiven. "Wie
 ben jij?" Ik ben dat kind en ik vraag het Ria. Het is schijnbaar het eerste wat
 ik haar heb gevraagd. 
 
-Het lijkt mij dan mooi om deze dag, die vraag voor Ria te beantwoorden om haar
-te gedenken. 
+Het lijkt mij mooi om deze dag, die vraag, voor Ria te beantwoorden. Opdat wij
+haar kunnen gedenken.
+
+Daarbij heb ik wel een probleem. Iedereen die hier is weet dat ik twee moeders
+heb. Dat ze allebei helaas zijn overleden. Dus als ik het over "mama" heb, dan
+is het niet perse duidelijk over wie ik het heb. Ik heb dan ook geprobeerd om
+waar ik het over Ria heb "mama" te gebruiken. En waar ik het over Renee heb haar
+bij haar naam te noemen.
 
 ## Voor mijn tijd
-Ria heeft voor dat ik haar mijn gerichte vraag stelde al een leven geleid.
-Daarin is zij natuurljk ook veel geweest. Ik weet daar alleen iets van uit de
-verhalen die Ria mij vertelden.
+Mama heeft, voor dat ik haar mijn gerichte vraag stel, al een leven geleid.
+Daarin is zij natuurljk ook veel geweest voor veel verschillende mensen.
 
-Een zus, jongste van tien. Zij vertelde ooit dat zij in de nacht door een van
-haar broers wakker werd gemaakt. Hij was uit geweest en veel te laat thuis
-gekomen. Om de toorn van de ouders te ontlopen werd Ria gevraagd om beneden te
-komen, op de rug van haar broer te klimmen om zo het aantal voetstappen op de
-trap correct te houden. 
+Een zus, jongste van tien. Scholier, student, vriendin en ongetwijfeld nog veel
+meer.
 
-Een vriendin. Op fietstocht werd er gestopt en overnacht bij een bed & breakfast
-ergens in Frankrijk. Het ontbijt was in buffetvorm, en het was zeker niet de
-bedoeling om ook de lunch van voor te bereiden. Maar tot groot plezier van Ria
-was haar fietsmaatje al in de deur van de auto de gestolen broodjes aan het
-smeren. 
+Ik zal weinig woorden besteden aan die periode. Niet omdat het niet belangrijk
+is. Niet omdat mensen geen warme herinneringen aan die tijd hebben. Gewoon omdat
+het voor mij tijd is.
 
-
-
+Wat ik er van weet, weet ik van verhalen. Verhalen die ongetwijfeld beter
+vertelt kunnen worden door andere. Liever praat ik over mijn ervaringen.
