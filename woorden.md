@@ -46,6 +46,9 @@ horen krijgen dat jij altijd op de tweede plek zult staan omdat de kinderen op
 de eerste plek komen lijkt mij een bittere pil om te slikken, helemaal aan het
 begin van een relatie.
 
+En hoewel Renee het nooit zou toe geven, stond mama al geruime tijd op nummer
+een.
+
 ## Zorgzaam
 Mama warm noemen zou genereus zijn. Maar zorgen kon zij goed. In het ziekenhuis
 waar ze jaren heeft gewerkt. Wanneer wij afgelopen dinsdag door de gangen er van
