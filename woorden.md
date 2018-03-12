@@ -31,9 +31,31 @@ Voor zolang als ik mij kan herinneren is mamma de vriendin van Renee. Hun
 relatie was zo natuurljk voor mij, ik heb er nooit vragen bijgesteld. Femke,
 mijn zus, heeft zelfs mijn woordenschat erover eens weten uit te breiden.
 
+## Homosexueel
 Ik had een nieuw scheldwoord geleerd op school. Ik wist niet wat het betekende,
 maar wilde het graag uitproberen. Tijdens het uitlaten van de hond hadden Femke
 en ik weer eens ruzie. 
 
-"*Lesbie!*" riep ik uit. Het antwoord van Femke? "Ik ben geen lesbie, mama is
+"**Lesbie!**" riep ik uit. Het antwoord van Femke? "Ik ben geen lesbie, mama is
 een lesbie". Ik begreep niet meer waarom het een scheldwoord zou zijn. 
+
+## Verdraagzaam
+Dat mama verdraagzaam is blijkt ook uit haar relatie met Renee. Ze hebben
+ontzettend veel van elkaar gehouden. Maar Renee is geen makelijk persoon. Te
+horen krijgen dat jij altijd op de tweede plek zult staan omdat de kinderen op
+de eerste plek komen lijkt mij een bittere pil om te slikken, helemaal aan het
+begin van een relatie.
+
+## Zorgzaam
+Mama warm noemen zou genereus zijn. Maar zorgen kon zij goed. In het ziekenhuis
+waar ze jaren heeft gewerkt. Wanneer wij afgelopen dinsdag door de gangen er van
+lopen ontmoeten wij vele oud collega's.
+
+Ook thuis blinkt zij uit. Voor Renees dood takelt zij langzaam af. Dat verbloemt
+zij en door mama kan dat. Mama zorgt dat het haar aan niets ontbreekt.
+
+## Hondenliefhebber
+Maar denk ook aan Puck. Al jaren last van suikerziekte, staar en andere
+gebreken. Het beest leeft ondanks dat een prachtige leven door de zorg van mama.
+Wij prijzen ons dan ook gelukkig dat Puck met haar mee mag.
+
