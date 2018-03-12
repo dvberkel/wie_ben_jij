@@ -9,8 +9,8 @@ haar kunnen gedenken.
 Daarbij heb ik wel een probleem. Iedereen die hier is weet dat ik twee moeders
 heb. Dat ze allebei helaas zijn overleden. Dus als ik het over "mama" heb, dan
 is het niet perse duidelijk over wie ik het heb. Ik heb dan ook geprobeerd om
-waar ik het over Ria heb "mama" te gebruiken. En waar ik het over Renee heb haar
-bij haar naam te noemen.
+waar ik het over Ria heb "mama" te gebruiken. En waar ik het over Renee heb,
+haar bij haar naam te noemen. 
 
 ## Voor mijn tijd
 Mama heeft, voor dat ik haar mijn gerichte vraag stel, al een leven geleid.
@@ -58,4 +58,24 @@ zij en door mama kan dat. Mama zorgt dat het haar aan niets ontbreekt.
 Maar denk ook aan Puck. Al jaren last van suikerziekte, staar en andere
 gebreken. Het beest leeft ondanks dat een prachtige leven door de zorg van mama.
 Wij prijzen ons dan ook gelukkig dat Puck met haar mee mag.
+
+## Buur
+De zorg van Puck heeft ze ook wel een moeten afstaan. Aan de buurvrouw
+bijvoorbeeld. Bianca heeft menigmaal bij gesproken, ook als mama daar niet om
+vroeg.
+
+## Zelfstandig
+Juist omdat mama daar niet om vroeg. Mama wou graag zelfstandig zijn, niet
+afhankelijk van anderen. Hulp vragen was dan ook moeilijk.
+
+Wanneer mama twee weken geleden ziek is van een longontsteking en Marlies, mijn
+vrouw en ook huisarts, haar bezoekt begint zij zelf over verhuizen. Een
+appartement met maar een verdieping.
+
+## Gelukkig
+Wij, de kinderen, hadden het wel eens besproken, maar nooit met Mama. Dat zij er
+zelf over begint verbaast ons zeer. Het is ook maar van korte duur. Als zij een
+beetje opknapt zegt ze al snel weer. Ik hoef niet te verhuizen, ik ben gelukkig
+hier.
+
 
