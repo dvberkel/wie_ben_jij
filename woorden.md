@@ -69,7 +69,7 @@ Wij prijzen ons dan ook gelukkig dat Puck met haar mee mag.
 
 ## Buur
 De zorg van Puck heeft ze ook wel eens moeten afstaan. Aan de buurvrouw
-bijvoorbeeld. Bianca heeft menigmaal bij gesponge, ook als mama daar niet om
+bijvoorbeeld. Bianca heeft menigmaal bij gespongen, ook als mama daar niet om
 vroeg.
 
 ## Zelfstandig
@@ -78,12 +78,54 @@ afhankelijk van anderen. Hulp vragen was dan ook moeilijk.
 
 Wanneer mama twee weken geleden ziek is van een longontsteking en Marlies, mijn
 vrouw en ook huisarts, haar bezoekt begint zij zelf over verhuizen. Een
-appartement met maar een verdieping.
+appartement met maar een verdieping bijvoorbeeld. Ze wist namelijk niet meer hoe
+het zo moest.
 
 ## Gelukkig
-Wij, de kinderen, hadden het wel eens besproken, maar nooit met Mama. Dat zij er
+Wij, de kinderen, hadden het wel eens besproken, maar nooit met mama. Dat zij er
 zelf over begint verbaast ons zeer. Het is ook maar van korte duur. Als zij een
 beetje opknapt zegt ze al snel weer. Ik hoef niet te verhuizen, ik ben gelukkig
 hier.
 
+## Ziek
+Gelukkig is zij ook wanneer haar kinderen in het ziekenhuis zijn. Ze is
+namelijk ziek. COPD van teveel jaren, teveel roken. Longontsteking en de griep
+die heerst.
 
+Het kapje zuurstof verdraagt ze slecht. Ze heeft een droge mond. De artsen zien
+geen toekomst meer.
+
+Er wordt gekozen om het kapje af te doen en haar met morfine en slaapmiddel in
+een pijnloze slaap te brengen. Ze is bij en met de ervaring als verpleeger weet
+zij wat komen gaat.
+
+Wij zeggen haar dat wij van haar houden.
+
+## Vrouw van weinig woorden
+Dan is daar een echt mama moment. "Jullie zijn bedankt". Mama was nooit goed met
+woorden, of emoties. Maar op dat moment zegt zij ons dat wij veel voor haar
+hebben betekend.
+
+## Overleden
+Een dag later, op 7 maart 15:15 overlijd mama.
+
+## Niet vergeten
+Mama, wie ben jij?
+
+Als ik de kopjes opnoem die structuur gaven aan mijn verhaal
+
+* Partner
+* Homosexueel
+* Verdraagzaam
+* Zorgzaam
+* Hondenliefhebber
+* Buur
+* Zelfstandig
+* Gelukkig
+* Ziek
+* Vrouw van weinig woorden
+* Overleden
+
+Dan ben jij veel meer dan dat. Jij bent op de eerste plaats mijn moeder.
+
+Mama, weet dat ik jou mis. En dat jij niet wordt vergeten.
