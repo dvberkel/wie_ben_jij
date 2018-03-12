@@ -52,19 +52,24 @@ een.
 ## Zorgzaam
 Mama warm noemen zou genereus zijn. Maar zorgen kon zij goed. In het ziekenhuis
 waar ze jaren heeft gewerkt. Wanneer wij afgelopen dinsdag door de gangen er van
-lopen ontmoeten wij vele oud collega's.
+lopen ontmoeten wij vele oud collega's. Allemaal kent mama ze nog bij naam.
 
-Ook thuis blinkt zij uit. Voor Renees dood takelt zij langzaam af. Dat verbloemt
-zij en door mama kan dat. Mama zorgt dat het haar aan niets ontbreekt.
+Ook thuis blinkt zij uit. Voor Renees dood is zij langzaam afgetakeld. Dat
+verbloemt Renee en door mama kan dat. Mama zorgt dat het haar aan niets
+ontbreekt. 
 
 ## Hondenliefhebber
 Maar denk ook aan Puck. Al jaren last van suikerziekte, staar en andere
 gebreken. Het beest leeft ondanks dat een prachtige leven door de zorg van mama.
+
+Zo vonden wij na haar mama's dood in de achterbak van haar auto een hele zak vol
+met deze speeltjes want, "Daar is zij zo dol op".
+
 Wij prijzen ons dan ook gelukkig dat Puck met haar mee mag.
 
 ## Buur
-De zorg van Puck heeft ze ook wel een moeten afstaan. Aan de buurvrouw
-bijvoorbeeld. Bianca heeft menigmaal bij gesproken, ook als mama daar niet om
+De zorg van Puck heeft ze ook wel eens moeten afstaan. Aan de buurvrouw
+bijvoorbeeld. Bianca heeft menigmaal bij gesponge, ook als mama daar niet om
 vroeg.
 
 ## Zelfstandig
